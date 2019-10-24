@@ -1,4 +1,4 @@
-## Stay hungrey,Stay foolish
+## Stay hungry,Stay foolish
 
 近期博客：
 
